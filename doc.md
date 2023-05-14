@@ -1,0 +1,1 @@
+craft and find the gold bar
